@@ -7,8 +7,6 @@ Cavalier King Charles Spaniel
 
    King Charles Spaniel
 
-Cavalier King Charles Spaniel to mały, uroczy pies o przyjaznym
-usposobieniu. Znany ze swojego pięknego wyglądu, dużych oczu i
-jedwabistej sierścim jest idealnym towarzyszem dla rodzin.
-Charakteryzuje się łagodnym  temperamentem i chętnie bierze
-udział w życiu domu.
+Cavalier King Charles Spaniel to mały, uroczy pies o przyjaznym usposobieniu.
+Znany ze swojego pięknego wyglądu, dużych oczu i jedwabistej sierścim jest idealnym towarzyszem dla rodzin.
+Charakteryzuje się łagodnym  temperamentem i chętnie bierze udział w życiu domu.
